@@ -1,2 +1,2 @@
-# Carreta-Furac-o-2000
+# Carreta-Furacu-2000
 Homem aranha, Fofão, Chaves, Chiquinha, etc...
